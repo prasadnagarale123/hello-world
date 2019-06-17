@@ -1,5 +1,6 @@
 # hello-world
-hi,
-   I am prasad nagarale.
-   from amrut software belgaum
-   devopse engineer
+hi..
+   I  think i am loosing my mind.
+   dono what happened to me
+   i want to do something tomy country.
+
